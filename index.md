@@ -7,3 +7,4 @@ A ese resto me dirijo: ¿Acaso crees que todo lo que aparece en una pantalla es 
 * Protector
 * Paciente
 > No temas
+<img src="https://www.turismocastillayleon.com/en/events/ages-man-2019.files/177369-Cap-3.%20%C3%81ngel.%20Lerma.%20Convento%20de%20San%20Blas__.jpg"/> 
